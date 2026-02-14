@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Justlinuxyourself
 - 👀 I’m interested in tech and programming
 - 🌱 I’m currently learning android apps
-- 📫 How to reach me hisswx9 in tiktok, dalinuxuser in snapchat, alidabricker in telegram
+- 📫 How to reach me hisswx9 in tiktok
 - 😄 Gender: Male
 - ⚡ Fun fact: im 12
 
