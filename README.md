@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning android apps
 - 📫 How to reach me hisswx9 in tiktok, dalinuxuser in snapchat, alidabricker in telegram
 - 😄 Gender: Male
-- ⚡ Fun fact: im 11
+- ⚡ Fun fact: im 12
 
 <!---
 Justlinuxyourself/Justlinuxyourself is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
