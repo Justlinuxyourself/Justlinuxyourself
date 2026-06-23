@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 👋 Hi, I’m @Justlinuxyourself<br>- 👀 I’m interested in tech and programming<br>- 🌱 I’m currently Making a OS<br>- 📫 How to reach me: hisswx9 in tiktok<br>- 😄 Gender: Male<br>- ⚡ Fun fact: im 12
+- 👋 Hi, I’m Ali Yahya Ali Sumaily or علي يحي علي صميلي<br>- 👀 I’m interested in tech and programming<br>- 🌱 I’m currently Making a OS<br>- 📫 How to reach me: hisswx9 in tiktok<br>- 😄 Gender: Male<br>- ⚡ Fun fact: im 12
 
 
 ## 🌐 Socials:
